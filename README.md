@@ -1,1 +1,0 @@
-# boiler-palte-ko
